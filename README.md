@@ -1,4 +1,4 @@
-<h1 align="center">STILL DYING IN VOIP
+<h1 align="center">hi skids and woke dead minds
 
 
 <img align="center" width="47%" src="https://github-readme-stats.vercel.app/api?username=duzme&show_icons=true&theme=dark" /> <h6 align="center">here im assuming you know me...
