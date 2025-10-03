@@ -15,5 +15,4 @@ OTHER ALIAS YOU MIGHT HAVE KNOWN ME FOR (both art and dev)
 current fanartist for EToH, interested in ARGs, software engineering, art, what more?
 "Faith and dead friends."
 
-priv twt and that one site etoh players would know;) @octawave
 twt @f8_4rtem1x
